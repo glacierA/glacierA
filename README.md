@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+First year student at Northeastern University
+give me a job... pls
+
 <!--
 **glacierA/glacierA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
