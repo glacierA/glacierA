@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-First year student at Northeastern University 
+Second year student at Northeastern University 
 
 
 <!--
